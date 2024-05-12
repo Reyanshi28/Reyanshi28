@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Reyanshi28
 - 👀 I’m interested in speaking in public
-- 🌱 I’m currently learning bid data
+- 🌱 I’m currently learning big data
 - 💞️ I’m looking to collaborate on a project on an e-commerce website
 - 📫 How to reach me mail me on reyanshiankasala@gamail.com
 - 😄 Pronouns:  you gyus can call me anshi 
